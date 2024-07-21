@@ -1,0 +1,1 @@
+# NOTE: I am not gonna release the guide or such and what to even start with using because: 1, further research and testing must be done. 2, even though if this will ever foreseeably be able to finished, we might as well just release it by the end of the Switch life span so that lobbies arent filled with hackers and cheaters etc,
